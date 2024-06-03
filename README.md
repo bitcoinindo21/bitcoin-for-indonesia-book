@@ -1,6 +1,8 @@
 This is the manuscript for Bitcoin For Indonesia
 1st Edition, December 2023
 
+The is the .pdf version as well as a link to the original canva file. Both avaiable in English and Indonesian language.
+
 The book was released December 23, 2023. 
 
 Author: Diana Baudach & Marius Michael Hubrig
