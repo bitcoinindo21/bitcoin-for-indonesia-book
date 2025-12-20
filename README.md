@@ -24,3 +24,5 @@ May this Book help the World!
 ![Bitcoin-Book-Bitcoin-For-Indonesia-Free-Education-Book-For-Everyone-Govenment-Bitcoin-Education](https://github.com/user-attachments/assets/bc2f26e4-27db-4683-be72-463033399c95)
 
 ![printed book_Bitcoin_For_Indonesia_Education](https://github.com/user-attachments/assets/294dbe54-b7bb-42a2-9b0b-b264ebe388f6)
+
+![thumbnail ID new](https://github.com/user-attachments/assets/d4adcecc-82b2-431b-b82e-e9b4ac61be76)
